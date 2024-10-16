@@ -16,3 +16,7 @@ List Of Movie Download Site...👍🏻
 )
 
 8.SdMoviespoint .[Click](https://sdmoviespoint.social/)
+
+9.7starhd .[Click🖇️](https://www.7starhd.london/)
+
+10.YoMovies.[Click🖇️](https://yomovies.ing/)
